@@ -1,6 +1,6 @@
 # Брэд Пит: Легенда Голливуда
 
-![Брэд Пит]([https://upload.wikimedia.org/wikipedia/commons/thumb/0/0c/Brad_Pitt_%28Cannes_2019%29.jpg/800px-Brad_Pitt_%28Cannes_2019%29.jpg](https://cs14.pikabu.ru/post_img/2023/12/18/8/og_og_1702902591268068509.jpg))
+![]([https://upload.wikimedia.org/wikipedia/commons/thumb/0/0c/Brad_Pitt_%28Cannes_2019%29.jpg/800px-Brad_Pitt_%28Cannes_2019%29.jpg](https://cs14.pikabu.ru/post_img/2023/12/18/8/og_og_1702902591268068509.jpg))
 
 **Брэд Пит** — один из самых известных и талантливых актеров современности. Его карьера охватывает более трех десятилетий, и он продолжает впечатлять зрителей своими ролями.
 
